@@ -11,8 +11,10 @@
 
 ![2-rengeki-1](https://user-images.githubusercontent.com/60374101/138318332-2599ab05-8f8d-4110-8f4c-29bf07e93aea.jpg)
 
+### 暗黒、白、ガンブレ、機工
 ![2-rengeki-2](https://user-images.githubusercontent.com/60374101/138318390-a7eda2bc-99b5-4194-a155-65f8613b4d79.jpg)
 
+### ナイト、学者、赤、侍
 ![2-rengeki-3](https://user-images.githubusercontent.com/60374101/138318405-1a176e55-275d-4a3f-9751-3f6c80e62f7c.jpg)
 
 ### 群竜
