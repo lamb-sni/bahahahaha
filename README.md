@@ -17,6 +17,10 @@
 ### ナイト、学者、赤、侍
 ![2-rengeki-3](https://user-images.githubusercontent.com/60374101/138318405-1a176e55-275d-4a3f-9751-3f6c80e62f7c.jpg)
 
+### シェイカー散開
+![2-rengeki-4](https://user-images.githubusercontent.com/60374101/138458198-90556a5e-0a21-4fd1-951b-fc69b7f935c0.jpg)
+
+
 ### 群竜
 
 ![3-gunryu-1](https://user-images.githubusercontent.com/60374101/138318451-8564d6eb-5999-4ee9-a265-154810d001c2.jpg)
